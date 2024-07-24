@@ -1,0 +1,1 @@
+Patika+ While dongusu pratigi.
